@@ -1,4 +1,4 @@
-### Hi there 👋
+### This place is not a place of honor... no highly esteemed deed is commemorated here... nothing valued is here.
 
 <!--
 **JustJirka/JustJirka** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
